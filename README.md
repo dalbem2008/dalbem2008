@@ -5,4 +5,4 @@ Meu nome é Vinicius
 Estou estudando na alura!
 
 
-![](https://tenor.com/pt-BR/view/treatsbettr-fiel-torcida-fiel-tim%C3%A3o-coring%C3%A3o-gif-8817973926359122240)
+![](https://tenor.com/pt-BR/view/bolsonaro-acre-fuzilar-petralhada-petralhada-aqui-do-acre-gif-12739799)
